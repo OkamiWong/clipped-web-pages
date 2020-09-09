@@ -341,6 +341,6 @@
 
 [发布于 08-11](//www.zhihu.com/question/54655566/answer/1400048569)
 
-​赞同 1273​​34 条评论
+赞同 1273 34 条评论
 
  [https://www.zhihu.com/question/54655566/answer/1400048569](https://www.zhihu.com/question/54655566/answer/1400048569)
